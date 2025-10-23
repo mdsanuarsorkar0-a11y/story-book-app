@@ -1,0 +1,1 @@
+ami akta valo sele
